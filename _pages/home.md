@@ -28,7 +28,7 @@ This little space here is where I express some of my thoughts in form of writing
 
 
 
-You can reach me out on [Twitter]((https://twitter.com/whitesideofdsun)) and [LinkedIn](https://www.linkedin.com/in/ananthuv/)
+You can reach me out on [Twitter](https://twitter.com/whitesideofdsun) and [LinkedIn](https://www.linkedin.com/in/ananthuv/)
 
 &nbsp;
 &nbsp;
