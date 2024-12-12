@@ -14,4 +14,4 @@ I grew up in the beautiful town of Pollachi till I was 10 before moving to Coimb
 I am an optimist, and I believe we are living in one of the greatest times of humanity. We should/can use technology more in favor of the greater good of our species and our planet as a whole. I also believe in social equality. Of course, yes, in the vastness of the Universe and its existence, you, me, and our planet as a whole, nothing matters. But that does not mean that we should just let Bob kill Alice and walk away without any consequences.
 
 
-If you've got something to talk, you can also reach out to me at here [ananthuajju][at][famous_domain_starting_with_g]
+If you've got something to talk, you can also reach out to me here [ananthuajju][at][famous_domain_starting_with_g]
